@@ -1,2 +1,2 @@
 # Pelatihandata
-day1
+Nensy18510003
